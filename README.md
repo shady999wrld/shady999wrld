@@ -1,0 +1,3 @@
+- 👋 Hi, I’m shadyWRLD
+- 📫 How to reach me is my tiktok: @gshady999wrldg
+- 😄 Pronouns: he him straight
